@@ -1,5 +1,1 @@
-Here you can say lots of fun things about your site.
-
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+I code a lot in my free time and I found that a lot of the time I learn new things that I like to document so that's what you'll find here.
